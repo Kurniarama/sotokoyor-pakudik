@@ -1,0 +1,1 @@
+# sotokoyor-pakudik
